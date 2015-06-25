@@ -7,32 +7,3 @@ CHanged it....21
 change it twice....
 chenged it thrice...
 4 now....
-fiiiiiiiive
-
-18
-siiiiix
-
-seven
-
-eight
-
-nine
-
-tententententen
-
-eleven
-
-12
-
-thirteen
-
-
-14
-
-
-fifteen
-16
-seventeen 17
-nineteen
-
-20! 
